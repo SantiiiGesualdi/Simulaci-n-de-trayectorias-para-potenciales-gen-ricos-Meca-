@@ -1,0 +1,1 @@
+# Simulaci-n-de-trayectorias-para-potenciales-gen-ricos-Meca-
